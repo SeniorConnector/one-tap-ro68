@@ -1,4 +1,4 @@
-
+Experience one tap like never before with one tap secret Scripts, the #1 Script. Includes auto-upgrade and auto-sell for unbeatable performance.
 
 
 
